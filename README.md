@@ -1,4 +1,4 @@
-# ChatGPT 中文版【国内免费指南】| GPT-4、GPT-4o，无需翻墙~  【2025/07/27 持续更新】            
+# ChatGPT 中文版【国内免费指南】| GPT-4、GPT-4o，无需翻墙~  【2025/08/06 持续更新】            
 
 **全面使用 [ChatGPT 中文版](https://chat.lanjingai.org)，无需翻墙，支持 GPT-4 及中文版功能服务！**
 
